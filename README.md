@@ -6,6 +6,9 @@
 - 😄 Pronouns: her/ she
 - ⚡ Fun fact: Im also an artist in both traditional and digital, I am also an anime fan and into gaming.
 
+      
+Wanna be friends?? dm me directly at my discord account @isabella7639 :> 
+
 <!---
 LeahArgs09/LeahArgs09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
