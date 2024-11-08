@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Leighhh or you can also call me belle
 - 👀 I’m interested in web development specifically in web design
 - 🌱 I’m currently learning frameworks such as react js vue and laravel
-- 💞️ I’m looking to collaborate on other projects that could help me learn and grow as an IT student 
+- 💞️ I’m looking to collaborate on other projects that could help me learn and grow as an web developer
 - 📫 You can directly message me through my social media platforms for collaboration 
 - 😄 Pronouns: her/ she
 - ⚡ Fun fact: Im also an artist in both traditional and digital, I am also an anime fan and into gaming.
