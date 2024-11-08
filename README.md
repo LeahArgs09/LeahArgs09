@@ -7,7 +7,7 @@
 - ⚡ Fun fact: Im also an artist in both traditional and digital, I am also an anime fan and into gaming.
 
       
-Wanna be friends?? dm me directly at my discord account @isabella7639 :> 
+Wanna be friends?? DM me directly at my discord account @isabella7639 :> 
 
 
 <!---
