@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning frameworks such as laravel
 - 💞️ I’m looking to collaborate on other projects that could help me learn and grow as an web developer
 - 📫 You can directly message me through my social media platforms for collaboration 
-- 😄 Pronouns: her/ she
 - ⚡ Fun fact: Im also an artist in both traditional and digital, I am also an anime fan and into gaming.
 
       
